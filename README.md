@@ -1,5 +1,5 @@
 # 💫 About Me:
-I AM AN CSE STUDENT
+I an CSE student @DSCE
 
 
 ## 🌐 Socials:
